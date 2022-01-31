@@ -1,3 +1,6 @@
-### Visit https://pagarbook.com
+## This page is under construction 
 
-### This page is under construction
+
+Please visit https://pagarbook.com
+
+
